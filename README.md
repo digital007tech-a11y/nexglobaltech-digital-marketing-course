@@ -1,5 +1,4 @@
 # nexglobaltech-digital-marketing-course
-Digital Marketing Course in Chennai with Internship &amp; Job Placement
 # Digital Marketing Course in Chennai with Internship & Job Placement
 
 NexGlobal Tech offers a **Digital Marketing Course in Chennai** designed for students, freshers, and working professionals who want practical, job-ready skills.
